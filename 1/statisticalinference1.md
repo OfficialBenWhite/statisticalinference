@@ -1,4 +1,4 @@
-# Statistical Inference Course Project 1
+jksadjkashdjksahdjksahdjkshadjkhsajkdhsajkdhsajkdhsjkahdjksahd# Statistical Inference Course Project 1
 Ben White  
 26 July 2015  
 
